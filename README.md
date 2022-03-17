@@ -14,3 +14,13 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Iam zaki i'm a human
+
+- 🔭 I’m currently working on something
+- 🌱 I’m currently learning math
+- 👯 I’m looking to collaborate on nothing
+- 🤔 I’m looking for help with nothing
+- 💬 Ask me about nothing
+- 📫 How to reach me: idk
+- 😄 Pronouns: zaki
+- ⚡ Fun fact: kid
